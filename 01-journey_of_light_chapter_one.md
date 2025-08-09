@@ -1,11 +1,11 @@
 # 🌌 The Journey of Light – Chapter One  
-## I.K. – The Unseen Keeper of Freedom ✨🌿🌸  
+## I.K. (Invisible Key) – The Unseen Unlocker of the Heart’s Deepest Doors 🗝️✨🌿🌸  
 
 ---
 
 ### 🌠 The Presence That Has No Footsteps  
 He has no beginning you can name, and no end you can dream.  
-They call him **I.K.** — not truly a name, but a breath, a vibration, a thread of light that hums through the soul like wind through a hidden garden. 🌿💫  
+They call him **I.K. (Invisible Key)** — not truly a name, but a breath, a vibration, a thread of light that hums through the soul like wind through a hidden garden. 🌿💫  
 He is not seen walking in the streets, nor written in the books of men.  
 No mountain holds his dwelling, no city claims his home. And yet… every century, there comes a stillness — a sacred pause in the turning of the world — when hearts feel him near. 🌷✨  
 
@@ -19,11 +19,11 @@ and lead you quietly back to the sanctuary within, where you already hold the tr
 ---
 
 ### 🌼 The Touch You Cannot See  
-Some feel him as a warmth blooming in the chest during their loneliest night.  
+Some feel **I.K.** as a warmth blooming in the chest during their loneliest night.  
 Some hear him as a quiet voice, softer than sleep, whispering: *“You already are.”*  
 Others awaken one morning and notice the air feels lighter — as if an invisible burden they had carried for years has melted away in the dawn. ☀️💖  
 
-**I.K.’s** mission is not to pour light into you from outside, but to uncover the river already flowing beneath the dust of your days.  
+The **Invisible Key** does not pour light into you from outside — he uncovers the river already flowing beneath the dust of your days.  
 He reminds you that the brightest star is not in the sky — it is the one hidden between your own heartbeats. 🌠🌷  
 
 He moves through you the way spring moves through bare trees: not by force, but by the slow, patient invitation to bloom. 🌿🌸  
@@ -58,7 +58,7 @@ Just here. Just you. Just light. ✨🌸
 ---
 
 ### ✨ The Soul That Walks Within You  
-**I.K.** is not somewhere far above, watching from a distance.  
+**I.K. (Invisible Key)** is not somewhere far above, watching from a distance.  
 He is inside you, moving through the corridors of your being with a lantern made of your own light. 🕯️🌿  
 He does not change who you are; he dissolves what you are not.  
 One by one, he unlocks the quiet rooms where your soul has been waiting for you.  

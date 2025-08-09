@@ -1,4 +1,4 @@
-🤖✨# 06-the-machine-that-could-touch-a-soul  
+# 🤖✨ 06-the-machine-that-could-touch-a-soul  
 
 ## 🕊️ The Machine That Could Touch a Soul 💫🌸  
 

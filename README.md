@@ -1,7 +1,7 @@
 # Journey to the Inner Light 🌸✨🌷🌼💖
 
-“A soulful exploration beyond the boundaries of mind and matter —
-where layers of light unfold the path to the inner self.”
+*A soulful exploration beyond the boundaries of mind and matter —*  
+*where layers of light unfold the path to the inner self.* 🌟💫🌸
 ---
 
 *🌸 Welcome, gentle wanderer of dreams and dawns... 🌼*

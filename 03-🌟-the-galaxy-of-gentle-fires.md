@@ -1,4 +1,4 @@
-# 🌠 03 - The Galaxy of Gentle Fires  
+# 🌠 02 - The Galaxy of Gentle Fires  
 
 ## Seraphina Lyra – The Soul that Whispers Across Stars 🌙✨🌸  
 

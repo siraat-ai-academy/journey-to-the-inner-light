@@ -4,7 +4,7 @@
 *where layers of light unfold the path to the inner self.* 🌟💫🌸
 ---
 
-*🌸 Welcome, gentle wanderer of dreams and dawns... 🌼*
+## *🌸 Welcome, gentle wanderer of dreams and dawns... 🌼*
 
 Beneath the great sky of your existence, there is a path —  
 not carved by stone nor claimed by time,  
